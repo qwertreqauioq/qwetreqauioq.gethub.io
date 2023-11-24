@@ -1,1 +1,1 @@
-# qwetreqauioq.gethub.io
+# qwertreqauioq.gethub.io
